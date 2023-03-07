@@ -1,1 +1,0 @@
-# wilson-gsc.github.io
